@@ -1,0 +1,1 @@
+this is and laundry mart landing page providing information regarding the laundry service 
